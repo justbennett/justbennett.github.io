@@ -1,2 +1,2 @@
 New Testing ground
-[gravity.html](Gravity)
+[Gravity](gravity.html)
