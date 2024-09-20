@@ -1,3 +1,3 @@
 Nothing here yet.
 
-[Personal Site](https://bennett.sanderfam.com)
+[Personal Site](https://sanderfam.com)
