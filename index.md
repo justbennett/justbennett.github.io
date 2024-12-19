@@ -1,8 +1,6 @@
-
-Bobby Hugh Sanderson
-=======
-#March 19, 1950 - July 31, 2024
-
+![](9023862_fbs.jpg)  Bobby Hugh Sanderson
+=====
+### March 19, 1950 - July 31, 2024
 Houston-Bobby Hugh "B.H." Sanderson, 74, passed away Wednesday, July 31, 2024, at North Mississippi Medical Center in Tupelo. He was born March 19, 1950, in Houston, MS, to the late James Thad Sanderson and Melba Lois Berry Sanderson. He was a member of the First Baptist Church Houston, Jaycees, Mississippi Firefighters Association, Biloxi Rotary, various Ham radio groups, and a Houston Topper Pride Band Booster.
 
 He is survived by his wife, Dorajean Bennett Sanderson of Houston; his daughter, Miriam Garner (Jesse Brand) of Houston; his son, Bennett Thad Sanderson (Jana Fenton) of Hattiesburg; eight grandkids, Sandy, Emma Lee, Brand and Thad Garner of Houston, Laurel, Fenton, Grisham and Houston Sanderson of Hattiesburg; his sister, Betty Sanderson Sandidge of Houston; one great-grandchild, Jesse Gill of Houston; one niece, Dr. Amanda Harris of Brandon; nephew, Todd Bennett of Houston.
